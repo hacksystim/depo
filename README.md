@@ -1,1 +1,2 @@
-# depo
+# Merhaba Dosyamızı İndirdiğiniz İçin Teşekkür Ederiz hacksystim depomuzu sık kullanılanlara eklemeyi unutmayınız..
+# Her Hangi Bir Sorunda Veya Danışmak İstediğiniz Şey'de root@hacksys.xyz adresine mail atmaktan çekinmeyiniz...
